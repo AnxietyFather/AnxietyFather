@@ -1,5 +1,5 @@
 <p align="Center">
-𝘚𝘢𝘭𝘶𝘵𝘢𝘵𝘪𝘰𝘯𝘴, 𝘚𝘵𝘳𝘢𝘯𝘨𝘦𝘳‼ 𝘔𝘺 𝘯𝘢𝘮𝘦 𝘪𝘴 𝘐𝘷𝘰𝘳.
+Greetings friend! i am Alaric<3.
 </p>
 
 <p align="Center">
