@@ -13,7 +13,7 @@ Greetings friend! i am Alaric<3.
 </p>
 
 <p align="Center">
-ᵀᵒ ᵐʸ ˡᵒᵛᵉ ˊᴹⁱᵘˊ
+ᵀᵒ ᵐʸ ˡᵒᵛᵉ ˊᵈʳᵃᶜᵘˡᵃˊ
 </p>
 
 <p align="Center">
