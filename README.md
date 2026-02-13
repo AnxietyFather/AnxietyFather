@@ -1,6 +1,13 @@
-Have been unfollowing people due to Bots.. AND being unfollowed! (follow will stay if ponytown player!!
+<p align="Center">
+  Have been unfollowing people due to Bots.. AND being unfollowed! (follow will stay if ponytown player!!
+</p>
 
-
+<p align="Center">
+-
+-
+-
+  </p>
+  
 <p align="Center">
 𝘎𝘳𝘦𝘦𝘵𝘪𝘯𝘨𝘴 𝘧𝘳𝘪𝘦𝘯𝘥! 𝘪 𝘢𝘮 𝘈𝘭𝘢𝘳𝘪𝘤<3.
 </p>
