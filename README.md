@@ -1,5 +1,5 @@
 <p align="Center">
-  Have been unfollowing people due to Bots.. AND being unfollowed! (follow will stay if ponytown player!!
+  Will follow everyone back! (I do check if you unfollow.) Also will block if you cant be followed !! (OCD!!)
 </p>
 
 <p align="Center">
